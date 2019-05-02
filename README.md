@@ -1,1 +1,1 @@
-# Paparazzi
+# Kaylas Paparazzi Jewelry
